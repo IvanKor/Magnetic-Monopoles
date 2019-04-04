@@ -1,5 +1,6 @@
 # Magnetic-Monopoles
-Experimental picture magnetic monopoles
+Experimental picture magnetic monopoles.
+
 Широко известный ГИТТОРФ (Hittorf), Иоганн Вильгельм в 1869 г. 
 обнаружил (первооткрыватель) как катодные лучи и магнитные лучи. Описал их свойства. Все его
 труды даже по катодным лучам изъяты из публичного доступа. 
