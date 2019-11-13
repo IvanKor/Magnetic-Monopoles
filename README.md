@@ -21,6 +21,8 @@ https://www.youtube.com/watch?v=EiYsS7xXXq4
 
 https://www.youtube.com/watch?v=IVTA6moqVEM
 
+активация уранового стекла колбы в месте тени от мальтийского креста х-лучами или неизвестными лучами
+вследствии чего после опрокидывания креста место тени светится гораздо ярче
 https://www.youtube.com/watch?v=Xt7ZWEDZ_GI
 
 https://www.youtube.com/watch?v=nNS_GofE704
