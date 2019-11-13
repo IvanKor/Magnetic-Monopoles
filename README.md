@@ -6,6 +6,7 @@ Experimental picture magnetic monopoles.
 труды, даже пионерские по катодным лучам, изъяты из публичного доступа.
 
 ![](./first_monopol.jpg)
+
 видео https://www.youtube.com/watch?v=7psjUJTKpIM
 ![](./magnetic_monopoles.png)
 
