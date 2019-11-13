@@ -28,7 +28,8 @@ https://www.youtube.com/watch?v=nNS_GofE704
 странный нагрев катодными лучами
 
 https://www.youtube.com/watch?v=KwxUrTqzsTE
-
+здесь нагревание происходит сфокусированными анодными лучами
+https://www.youtube.com/watch?v=jQuP256wC3s
 
 
 
