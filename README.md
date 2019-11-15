@@ -44,5 +44,10 @@ Teltron Vacuum Tube
 
 https://www.youtube.com/watch?v=wWXWDZk7ABc
 
+отклонения катодных лучей в поле между обкладками конденсатора
+
+https://www.youtube.com/watch?v=o69t9QNhOOM
+
+![](./beam_s.png)
 
 
