@@ -40,4 +40,9 @@ https://www.youtube.com/watch?v=jQuP256wC3s
 
 https://www.youtube.com/watch?v=5DSfoheskto
 
+Teltron Vacuum Tube
+
+https://www.youtube.com/watch?v=wWXWDZk7ABc
+
+
 
