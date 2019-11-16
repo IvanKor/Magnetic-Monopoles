@@ -10,6 +10,10 @@ Experimental picture magnetic monopoles.
 видео https://www.youtube.com/watch?v=7psjUJTKpIM
 ![](./magnetic_monopoles.png)
 
+Плазма в ртутном газотроне NL-615, реакция на магниты
+
+https://www.youtube.com/watch?v=RNPp-U-RVwI
+
 Дополнительно 
 https://www.youtube.com/watch?v=c89AQ0W18is
 
