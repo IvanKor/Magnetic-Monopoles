@@ -50,4 +50,7 @@ https://www.youtube.com/watch?v=o69t9QNhOOM
 
 ![](./beam_s.png)
 
+Discharge tube producing X-rays
+
+https://www.youtube.com/watch?v=bqWD8kOQsZw
 
