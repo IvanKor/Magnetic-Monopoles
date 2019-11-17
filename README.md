@@ -14,6 +14,8 @@ Experimental picture magnetic monopoles.
 
 https://www.youtube.com/watch?v=RNPp-U-RVwI
 
+https://www.youtube.com/watch?v=QyurmRvFFYo
+
 Дополнительно 
 https://www.youtube.com/watch?v=c89AQ0W18is
 
