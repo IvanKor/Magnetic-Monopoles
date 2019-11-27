@@ -63,3 +63,15 @@ Discharge tube producing X-rays
 
 https://www.youtube.com/watch?v=bqWD8kOQsZw
 
+
+Трубка Ленарда и исследование свойств катодных лучей выходящих из окна этой трубки
+
+https://archive.org/details/measurementoflen71573tayl/page/67?q=Lenard+Ray
+
+![](./Lenard_window_tube_labeled.png)
+
+![](./lenard_current.png)
+
+исходя из кривой 1, измерение тока без изолятора однозначно следует что катодные лучи не имеют электрического заряда,
+это чисто нейтральные лучи но которые особо взаимодействуют с магнитным полем.
+
