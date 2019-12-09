@@ -75,3 +75,22 @@ https://archive.org/details/measurementoflen71573tayl/page/67?q=Lenard+Ray
 исходя из кривой 1, измерение тока без изолятора однозначно следует что катодные лучи не имеют электрического заряда,
 это чисто нейтральные лучи но которые особо взаимодействуют с магнитным полем.
 
+
+
+https://www.youtube.com/watch?v=bqWD8kOQsZw
+
+https://www.youtube.com/watch?v=5DSfoheskto
+
+https://www.youtube.com/watch?v=813-2aAJ300
+
+https://www.youtube.com/watch?v=Q6NPQ_9Kbj8
+
+https://www.youtube.com/watch?v=1XHHkiZLVpM
+
+https://www.youtube.com/watch?v=4Rb0RNK_DCE
+
+https://www.youtube.com/watch?v=gh6G4xynKxs
+
+https://www.youtube.com/watch?v=c89AQ0W18is
+
+
