@@ -121,7 +121,9 @@ https://www.youtube.com/watch?v=URJxfXMv9OU
 
 https://www.youtube.com/watch?v=0d6chzb7Z1c
 
+14:37 на середину магнита
 
+https://www.youtube.com/watch?v=qRl0jAtoLeo
 
 
 Плазменный тюнер, тест с внутренней полярностью N-N на магнетроне.
