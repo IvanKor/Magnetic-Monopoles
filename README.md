@@ -104,7 +104,11 @@ https://www.youtube.com/watch?v=nwRBlyZcNso
 https://www.youtube.com/watch?v=KwxUrTqzsTE
 
 5:33
+
 https://www.youtube.com/watch?v=PVh-Pyv00bU
 
+
+Плазменный тюнер, тест с внутренней полярностью N-N на магнетроне.
+https://www.youtube.com/watch?v=oz04vQp9xVU
 
 
