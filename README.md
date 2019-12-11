@@ -103,7 +103,7 @@ https://www.youtube.com/watch?v=nwRBlyZcNso
 
 https://www.youtube.com/watch?v=KwxUrTqzsTE
 
-5:33
+5:33 Монополи
 
 https://www.youtube.com/watch?v=PVh-Pyv00bU
 
@@ -112,6 +112,11 @@ simple magnetron effect
 10 кВ 100 мбар
 
 https://www.youtube.com/watch?v=hBacVnxZOfI
+
+Demonstration of magnetron plasma
+
+https://www.youtube.com/watch?v=fDdAbFP7TtE
+
 
 
 
