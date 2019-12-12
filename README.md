@@ -125,6 +125,10 @@ https://www.youtube.com/watch?v=0d6chzb7Z1c
 
 https://www.youtube.com/watch?v=qRl0jAtoLeo
 
+DC Plasma with focalisation magnet
+
+https://www.youtube.com/watch?v=g443hlJO4bA
+
 
 Плазменный тюнер, тест с внутренней полярностью N-N на магнетроне.
 Тест на магнитное удержание плазмы с полярностью N-N во внутренних перегородочных магнитах на магнетроне для ускорения процесса.
