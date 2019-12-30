@@ -168,3 +168,8 @@ Spark Inductor / Funkeninduktor
 
 https://www.youtube.com/watch?v=VqB2oq6uk_4
 
+телепортация Demonstration Crookscher Röhren
+
+https://www.youtube.com/watch?v=gJnG02p4Fp4
+
+
