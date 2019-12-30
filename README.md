@@ -161,5 +161,10 @@ Kesselring x ray tube
 https://www.youtube.com/watch?v=EeiN4KCDzHU&feature=youtu.be
 
 x ray tube with not good vacuum ! purple color
+
 https://www.youtube.com/watch?v=_XbhMCr-KeU
+
+Spark Inductor / Funkeninduktor
+
+https://www.youtube.com/watch?v=VqB2oq6uk_4
 
