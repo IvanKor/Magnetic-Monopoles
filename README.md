@@ -149,3 +149,10 @@ https://www.youtube.com/watch?v=oz04vQp9xVU
 
 
 https://www.youtube.com/watch?v=zcd7TSvK7PY
+
+
+
+Kesselring x ray tube work fine circa 1910
+
+https://www.youtube.com/watch?v=OCIosqqbBZ4
+
