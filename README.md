@@ -31,6 +31,11 @@ https://www.youtube.com/watch?v=IVTA6moqVEM
 вследствии чего после опрокидывания креста место тени светится гораздо ярче
 https://www.youtube.com/watch?v=Xt7ZWEDZ_GI
 
+луч телепортации в трубке с мальтийским крестом
+
+https://www.youtube.com/watch?v=_ClG3kIsWgU
+
+
 https://www.youtube.com/watch?v=nNS_GofE704
 
 странный нагрев катодными лучами
