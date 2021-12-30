@@ -7,8 +7,8 @@ Experimental picture magnetic monopoles.
 
 ![](./first_monopol.jpg)
 
-с тех пор их многократно переоткрывали, типа как и я их открыл,
-вот открытие от 1910 года https://royalsocietypublishing.org/doi/pdf/10.1098/rspa.1910.0019
+с тех пор их многократно переоткрывали, типа как и я их открыл, вот 
+открытие от 1910 года https://royalsocietypublishing.org/doi/pdf/10.1098/rspa.1910.0019
 
 или современное видео https://www.youtube.com/watch?v=7psjUJTKpIM
 ![](./magnetic_monopoles.png)
